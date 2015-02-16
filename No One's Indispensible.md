@@ -1,6 +1,8 @@
 No One's Indispensible
 ======================
 
+Thomas J. Webb | February 15th, 2015
+
 Last week at the [International Students For Liberty Conference (ISFLC)](http://isflc.org/), Ron Paul once again misgendered and deadnamed whistleblower and hero to libertarians everywhere, Chelsea Manning in a speech. Though his words otherwise sounded supportive, they indicate someone who *at best* hasn't paid attention to any news pertaining to her. More likely, he and the people he surrounds himself with disrespect not only Manning, but trans identities everywhere. As soon as he said this, some people in the audience, including some people from [C4SS](http://c4ss.org) shouted back to correct him. In return, rabid Ron Paul supporters have responded with insults and threats. This needs to stop.
 
 But this isn't about Ron Paul or about any particular celebrity. It's about our tendency as a movement to treat some people as irreplaceable because of what they have done at some point in the past. It's not only counter-productive, but goes against libertarian principles. Once you get over the intellectual-property based thinking our society adheres to where an idea *belongs* to someone, yourealize that continuing where someone left of isn't uniquely that person's perogative.
@@ -9,6 +11,35 @@ Ron Paul got famous making tirades against endless wars and against The Fed on w
 
 The common retort to any criticism of him is that he's *already* famous among the general public and whoever you offer as an alternative isn't. This may technically be true, but it's also a self-fulfilling prophecy. We must forget the capitalist mythology of the superman who rises from rags to riches entirely on his own strength. He got where he got by the help of people around him. That includes many hard-core conservatives, which is why he finds himself unable to say things that would upset that camp (such as, I don't know, respecting trans identities). But he also got a lot of help from our movement and continues to be given a platform. Again, this needs to stop.
 
+Dealing With True Monsters and Rule of Law
+------------------------------------------
 
+Most of the people who have achieved fame in our movement aren't terrible people, but it's helpful to consider how we respond when they are a true monster. It is no secret now that one of the co-founders of Center For a Stateless Society (C4SS), Brad Spangler, is an admitted child-rapist. Many people responded disturbingly supportive of him. True, most people did not but it was frightening to see how many people can be blinded by friendship or by distant admiration. But this incident also brought with it some questions - what are we doing wrong as a movement and what to do with his works.
+
+After internal wrestling on finer points, [C4SS has decided to archive his writings, keeping them available for public consumption but also dissociating them from the main website](http://c4ss.org/content/35256). This I think was the right call, and it illustrates that someone can, at least in extreme situations, be dissociated with *even if* they did valuable things in the past, like found the organization in question or write prolifically. It also shows that ideas have an integrity of their own and can survive and evolve even if they were worked on at one point by a poisonous individual.
+
+The other truly important question it raised was how to prevent giving cover to such individuals in the future. William Gillis [explored this question in his article](http://c4ss.org/content/35643):
+
+> We’re always going on about how non-state approaches to fucked up dynamics can be so much more effective — and ultimately they can be — yet this is precisely the kind of situation where we should easily be able to demonstrate that, and instead we’ve come up empty.
+> [...]
+> Markets work through the brilliantly self-organizing decentralized conveyance and evaluation of information. Insofar as we suppress that among ourselves — insofar as we declare that we know better than our compatriots what information is pertinent to their decisions and what they can be trusted to evaluate rationally — we suppress signals and leech dynamism from the market. We in effect reproduce some of the irrationality of state capitalism.
+
+How we respond to bad people in a movement tells much about our ability to build a better future. And it shouldn't have to come to arguably the most heinous of crimes. Like Gillis stated, it is part of "a spectrum of predatory and dehumanizing perspectives and behaviors deeply connected to misogyny" and thus must be struck at the root if it is to be dealt with. We should feel free to criticize early and criticize often. If we feel afraid to attack someone for a mistake, we need to loudly ask "why?"
+
+Anarchism as Praxis
+-------------------
+
+Central to libertarian movement hero worship, aka celebritarianism, is the idea that ideas are *precious* and that some people have really good ideas. But if you already understand how Microsoft's profits, for example, are largely [rents off of spurious intellectual property rights](http://c4ss.org/content/33137), then you should have a good nose for why celebritarians' ideas are not precious or at least _don't belong to them_. Each person who contributes to our political philosophy does so on the shoulders of giants, no, on the shoulders of a mound of others of equal stature. Markets work this way, societies work this way. Furthermore, it doesn't take deep understanding of economics, sociology or philosophy to understand the basics of how the state operates. It certainly helps, but the problem hasn't been lack of knowledge all this time, it has been bias and ideology.
+
+Practicing anarchism must not be seen as a highly technical skill that only a smaller number of individuals are qualified to do. For it to work, it must be something we can all practice to some degree. We do need experts to discover things and teach, maybe to offer their skills in various ways, but experts must not monopolize the podium and must not be worshipped. After all, any critic of power structures must be familiar with how experts have their own biases as a class.
+
+Movements to smash and replace the state, if successful, threaten to influence the shape a post-state society will take. If our movement is just another technocracy ran by people disproportionately from privileged groups, then so too will any future stateless society. New boss, same as the old boss. If we can't build a movement that looks radically different from the larger society, who should trust us to bring about any change to it?
+
+Celebritarianism and White Privilege
+------------------------------------
+
+It's no accident that celebritarians tend not to come from disadvantaged groups. It's good to tap into special connections people with advantages may have, but the more we create these white male celebrities, the more we are guilty of propogating the status quo. And it is yet another self-fulfilling prophecy. We believe old white guys who have been at it for a long time and have some books in their name can get respect and bring prestige to your conference. For we speak it, and it comes to be.
+
+But let's not forget that many have humble origins. There is nothing stopping us from making a new generation of celebrities who are more diverse. Better yet, nothing stopping us from creating a movement that isn't about personalities but rather about ideas and using them right now, not in some hypothetical utopian future.
 
 This work is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-sa/4.0/).
