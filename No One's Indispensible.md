@@ -21,7 +21,9 @@ After internal wrestling on finer points, [C4SS has decided to archive his writi
 The other truly important question it raised was how to prevent giving cover to such individuals in the future. William Gillis [explored this question in his article](http://c4ss.org/content/35643):
 
 > We’re always going on about how non-state approaches to fucked up dynamics can be so much more effective — and ultimately they can be — yet this is precisely the kind of situation where we should easily be able to demonstrate that, and instead we’ve come up empty.
+>
 > [...]
+>
 > Markets work through the brilliantly self-organizing decentralized conveyance and evaluation of information. Insofar as we suppress that among ourselves — insofar as we declare that we know better than our compatriots what information is pertinent to their decisions and what they can be trusted to evaluate rationally — we suppress signals and leech dynamism from the market. We in effect reproduce some of the irrationality of state capitalism.
 
 How we respond to bad people in a movement tells much about our ability to build a better future. And it shouldn't have to come to arguably the most heinous of crimes. Like Gillis stated, it is part of "a spectrum of predatory and dehumanizing perspectives and behaviors deeply connected to misogyny" and thus must be struck at the root if it is to be dealt with. We should feel free to criticize early and criticize often. If we feel afraid to attack someone for a mistake, we need to loudly ask "why?"
