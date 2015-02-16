@@ -1,18 +1,29 @@
-No One's Indispensible
-======================
+Against Celebritarianism
+========================
 
-Thomas J. Webb | February 15th, 2015
+Thomas J. Webb | February 16th, 2015
 
 Last week at the [International Students For Liberty Conference (ISFLC)](http://isflc.org/), Ron Paul once again misgendered and deadnamed whistleblower and hero to libertarians everywhere, Chelsea Manning in a speech. Though his words otherwise sounded supportive, they indicate someone who *at best* hasn't paid attention to any news pertaining to her. More likely, he and the people he surrounds himself with disrespect not only Manning, but trans identities everywhere. As soon as he said this, some people in the audience, including some people from [C4SS](http://c4ss.org) shouted back to correct him. In return, rabid Ron Paul supporters have responded with insults and threats. This needs to stop.
 
-But this isn't about Ron Paul or about any particular celebrity. It's about our tendency as a movement to treat some people as irreplaceable because of what they have done at some point in the past. It's not only counter-productive, but goes against libertarian principles. Once you get over the intellectual-property based thinking our society adheres to where an idea *belongs* to someone, yourealize that continuing where someone left of isn't uniquely that person's perogative.
+But this isn't about Ron Paul or about any particular celebrity. It's about our tendency as a movement to treat some people as irreplaceable because of what they have done at some point in the past. It's about libertarian movement celebrity worship or *celebritarianism* as I call it. It's not only counter-productive, but goes against libertarian principles. Once you get over the intellectual-property based thinking our society adheres to where an idea *belongs* to someone, you can understand that continuing where someone left off isn't that person's perogative.
 
-Ron Paul got famous making tirades against endless wars and against The Fed on widely televised Republican primary debates. Libertarianism, even if it were his odd brand thereof, made its way into our living rooms and his name got spoken at dinner table conversations. But other people hold similar views as him on these issues without his numerous problems, including the infamous [racist newsletters](http://www.washingtonpost.com/blogs/fact-checker/post/ron-paul-and-the-racist-newsletters-fact-checker-biography/2011/12/21/gIQAKNiwBP_blog.html).
+Ron Paul got famous making tirades against endless wars and against The Fed on widely televised Republican primary debates. Libertarianism, even if it was his odd brand thereof, made its way into our living rooms and his name to dinner table conversations. But other people hold similar views as him on these issues without his numerous problems, including the infamous [racist newsletters](http://www.washingtonpost.com/blogs/fact-checker/post/ron-paul-and-the-racist-newsletters-fact-checker-biography/2011/12/21/gIQAKNiwBP_blog.html) which he never satisfactorily addressed and his [association with Gary North](http://www.donotlink.com/bmb5), a Christian reconstructionist who supports stoning of adulturers.
 
-The common retort to any criticism of him is that he's *already* famous among the general public and whoever you offer as an alternative isn't. This may technically be true, but it's also a self-fulfilling prophecy. We must forget the capitalist mythology of the superman who rises from rags to riches entirely on his own strength. He got where he got by the help of people around him. That includes many hard-core conservatives, which is why he finds himself unable to say things that would upset that camp (such as, I don't know, respecting trans identities). But he also got a lot of help from our movement and continues to be given a platform. Again, this needs to stop.
+A common retort to any criticisms of him is that he's *already* famous among the general public and whoever you offer as an alternative isn't. This may technically be true, but it's also a self-fulfilling prophecy. We must forget the capitalist mythology of the superman who rises to great heights entirely on his own strength. He got where he is by the help of people around him. That includes many hard-core conservatives, which is why he finds himself unable to say things that would upset that camp. But he also got a lot of help from the liberty movement and continues to be given a platform. Again, this needs to stop.
 
-Dealing With True Monsters and Rule of Law
-------------------------------------------
+Innocent Mistakes Aren't
+------------------------
+
+It's important to remember that Ron Paul's use of name and pronoun for Chelsea Manning didn't appear in an off-the-cuff remark during a discussion or Q&A, which would make ignorance a little more plausible. It was in a speech, which no doubt has been gone over by himself and his aides. And it doesn't matter what his intentions are, only their effect. A point that libertarians have no problem making when addressing the apparently well-meaning actions of state actors, a disconnect Bobby Wakesleep has noted:
+
+> The defense of Ron Paul by appeal to lack of malicious intent - "he's old and doesn't know better" - is perhaps the most pathetic instance of special pleading I've ever come across. I've been hurt my entire life by people who apparently mean no harm. Libertarians of all people should immediately recognize how morally bankrupt this argument is, given their constant insistence that the good intentions of central planners do not mitigate the harm they cause, nor does it weaken our condemnation of their callous actions.
+
+It is also implausible to suggest that it's an accident. Ron Paul is unwilling to upset his hard-core supporters, which includes people with frighteningly backwards beliefs on various social issues. It speaks volumes about not only his priorities but that of any venue, any promoter and, dare I say, any movement that gives him a platform. Ron Paul can't truly comment on the racist newsletters because the conditions that created them, the people he surrounds himself, remain largely unchanged. No wonder his speech writer saw it fit to write about Manning from the perspective of someone whose been living in a cave for the past several years. Bobby then continues:
+
+> If he cannot gender Manning correctly - an admitted hero and public figure - how could we expect him to have good ideas for resolving the pandemic of violence facing trans women of color? His refusal to disavow the racist newsletters published in his name speaks volumes. Whether you agree with him on the Fed, war, borders, whatever - this man is an enemy of trans liberation and an enemy of black liberation and struggles for racial justice. He has no business in a movement for liberty, much less speaking as a figurehead. This is not extremism. This is a wake-up call.
+
+Dealing With True Monsters
+--------------------------
 
 Most of the people who have achieved fame in our movement aren't terrible people, but it's helpful to consider how we respond when they are a true monster. It is no secret now that one of the co-founders of Center For a Stateless Society (C4SS), Brad Spangler, is an admitted child-rapist. Many people responded disturbingly supportive of him. True, most people did not but it was frightening to see how many people can be blinded by friendship or by distant admiration. But this incident also brought with it some questions - what are we doing wrong as a movement and what to do with his works.
 
@@ -36,9 +47,6 @@ Central to libertarian movement hero worship, aka celebritarianism, is the idea 
 Practicing anarchism must not be seen as a highly technical skill that only a smaller number of individuals are qualified to do. For it to work, it must be something we can all practice to some degree. We do need experts to discover things and teach, maybe to offer their skills in various ways, but experts must not monopolize the podium and must not be worshipped. After all, any critic of power structures must be familiar with how experts have their own biases as a class.
 
 Movements to smash and replace the state, if successful, threaten to influence the shape a post-state society will take. If our movement is just another technocracy ran by people disproportionately from privileged groups, then so too will any future stateless society. New boss, same as the old boss. If we can't build a movement that looks radically different from the larger society, who should trust us to bring about any change to it?
-
-Celebritarianism and White Privilege
-------------------------------------
 
 It's no accident that celebritarians tend not to come from disadvantaged groups. It's good to tap into special connections people with advantages may have, but the more we create these white male celebrities, the more we are guilty of propogating the status quo. And it is yet another self-fulfilling prophecy. We believe old white guys who have been at it for a long time and have some books in their name can get respect and bring prestige to your conference. For we speak it, and it comes to be.
 
