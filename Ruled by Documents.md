@@ -1,0 +1,32 @@
+# Ruled by Documents
+
+
+
+
+* * *
+
+## Original Suggestions per Bobby
+
+Some potential ideas for a piece on NC one of you lovelies could write:
+
+* "Papers, please." NC's law bases bathroom access on birth certificates. Who carries one of those around? This means trans and GNC people will have to keep a copy with them just to use the bathroom. And that's assuming a trans person even has an amended BC.
+
+* Classism. Changing your birth certificate can be an arduous and expensive process. Often states will only allow BCs to be changed if given proof of bottom surgery, another thing that's out of reach to many trans people. (A few, including Ohio, won't let you change it at all.) This law bases basic human dignity -- access to the bathroom -- on how much money you have. People who don't have access to safe bathrooms at home -- like the huge population of houseless trans people -- are harmed even further. Of course this class divide will become even more stark, since the bill legalizes discrimination of any kind on the basis of sexual orientation, gender identity, or gender presentation -- employment, housing, you name it. Trans people are expected to be independently wealthy and jump through dozens of legal hoops and simultaneously face harsh barriers to even earning enough to stay alive.
+
+* Lateral oppression. Gender nonconforming people will be hurt by this law same as any trans person who doesn't "pass". Butch cis lesbians are sure to be harassed for this; there was already a high-profile case where a lawmaker threatened to expose himself to a cis woman he thought was trans. Even Cathy Brennan, TERF scum whose life is dedicated to killing trans women, opposes the bathroom laws on this basis.
+
+* Cis and trans unity. We have a scenario where trans women have been used as a scapegoat to deny cis queers their rights. This topic has a long and storied history; "trans" and "queer" didn't used to be such discrete entities, and became that way largely so that cis queers could engage in respectability politics. You could write about how this is a wake-up call for cis queers to stand with their trans community members.
+
+* Sexual assault. We know the trans bathroom predator trope is bullshit, but you could write an article interviewing trans women who are sexual assault survivors and make a really hard-hitting emotional piece about how these bills expose (trans) women and girls to risk in the guise of helping them.
+
+* Gender neutrality. Over and over, articles repeat the lie that trans-inclusive bathroom ordinances make them gender-neutral. This is baseless fearmongering from the right. Call them on that, but then make a proactive argument for how gender-neutral bathrooms would be an improvement. Then contrast your argument for gender-neutral bathrooms with the regressive, fearmongering rhetoric of merely continuing to allow gender-segregated access by trans people. You could bring nonbinary issues into this one.
+
+* Suicide and murder-by-proxy. Speak about empirical evidence that institutional cissexism increases trans suicide in terms that place the blame squarely on the lawmakers. This is not a suicide epidemic, it is a murder epidemic.
+
+* Capitalism. You think it's a coincidence that this bill just happened to also ban minimum wage increases? Draw on intersectional and socialist feminist traditions and discuss the connections between transmisogyny and capitalism.
+
+* The prison-industrial complex and cruel and unusual punishment. Trans people arrested for violating these absurd laws will be subjected to even further cruelty -- often including repeated sexual assault and psychological abuse -- by being housed in jails and prisons of the wrong gender.
+
+Come on guys, we don't need another article repeating the identical summary rundown and quotes by the HRC or whatever. This shit is fucking important.
+
+Even if you're not a writer, you can write letters to the editor of your local papers and public Facebook posts. Make some fucking noise.
